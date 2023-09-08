@@ -1,2 +1,2 @@
-# Landing Page ISci | Inteligence | Information | Innovation | Science & Technology
-Landing Page ISCI
+# Gambatê! 
+Go for it! Try your best!
